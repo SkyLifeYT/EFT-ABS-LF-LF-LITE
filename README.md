@@ -1,2 +1,14 @@
 # EFT-ABS-LF-LF-LITE
-SHOP: https://maunoporr.mysellix.io/en-en/   DISCORD: https://discord.gg/eRfnreUUAJ
+
+A LOT OF PRODUCTS FOR:
+
+EFT
+VALORANT
+APEX LEGENDS
+WARTHUNDER
+
+AND MANY MORE TO BE ADDED VERY SOON + DAY KEY OF YOUR CHOICE GIVEAWAY AT 50 BUYERS AND 50 MEMBERS IN DISC!!!
+
+SHOP: https://maunoporr.mysellix.io/en-en/   
+
+DISCORD: https://discord.gg/eRfnreUUAJ
